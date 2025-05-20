@@ -9,7 +9,7 @@
 
 | 🌍 **WW Зеркала (Мировые)**                    | 🇷🇺 **RU Зеркала (для России)**               |
 |-----------------------------------------------|----------------------------------------------|
-| [🔗 stake.bet](https://stake.bet/?c=ghvbzuiT)  | [🔗 stake1037.com](https://stake1037.com/?c=ghvbzuiT) |
+| [🔗 stake.bet](https://stake.bet/?c=ghvbzuiT)  | [🔗 stake1038.com](https://stake1038.com/?c=ghvbzuiT) |
 | [🔗 stake.ac](https://stake.ac/?c=ghvbzuiT)    |  |
 | [🔗 stake.games](https://stake.games/?c=ghvbzuiT) |  |
 | [🔗 stake.pet](https://stake.pet/?c=ghvbzuiT)  |  |
